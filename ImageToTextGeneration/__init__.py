@@ -1,0 +1,1 @@
+# https://medium.com/@ofekirsh/build-blip-2-step-by-step-59dc5a041827
